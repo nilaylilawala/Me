@@ -3,7 +3,7 @@
 
 - 👨‍💻 My Portfolio [https://sites.google.com/view/nilayportfolio/home?authuser=1](https://sites.google.com/view/nilayportfolio/home?authuser=1)
 
-- 📝 I regularly post reels and music cover on [https://www.instagram.com/lil_nilay/](https://www.instagram.com/lil_nilay/)
+- 📝 I regularly post reels and music cover on [https://www.instagram.com/lil_nilay/](https://www.instagram.com/lil__nilay/)
 
 - 📫 How to reach me **nilay.lilawala@gmail.com**
 
